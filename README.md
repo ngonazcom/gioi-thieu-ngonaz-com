@@ -37,13 +37,21 @@ Hoặc những kênh của NGONAZ trên các trang mạng xã hội và Internet
 
 <a href="https://twitter.com/ngonaz1" rel="noopener noreferrer nofollow">https://twitter.com/ngonaz1</a>
 <a href="https://www.instagram.com/ngonaz/" rel="noopener noreferrer nofollow">https://www.instagram.com/ngonaz/</a>
+
 <a href="https://www.facebook.com/daubeptaigia/" rel="noopener noreferrer nofollow">https://www.facebook.com/daubeptaigia/</a>
+
 <a href="https://gitlab.com/ngonaz/" rel="noopener noreferrer nofollow">https://gitlab.com/ngonaz/</a>
+
 <a href="https://www.reddit.com/user/tuanvuk6/" rel="noopener noreferrer nofollow">https://www.reddit.com/user/tuanvuk6/</a>
+
 <a href="https://github.com/ngonazcom/" rel="noopener noreferrer nofollow">https://github.com/ngonazcom/</a>
+
 <a href="https://vimeo.com/ngonaz/" rel="noopener noreferrer nofollow">https://vimeo.com/ngonaz/</a>
+
 <a href="https://www.linkedin.com/in/ngonazcom/" rel="noopener noreferrer nofollow">https://www.linkedin.com/in/ngonazcom/</a>
+
 <a href="https://www.pinterest.com/ngonazcom/" rel="noopener noreferrer nofollow">https://www.pinterest.com/ngonazcom/</a>
+
 <a href="https://medium.com/@ngonazcom" rel="noopener noreferrer nofollow">https://medium.com/@ngonazcom</a>
 
 Diễn đàn có mặt người sáng lập NGONAZ
